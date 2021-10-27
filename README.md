@@ -1,4 +1,4 @@
-### Hi there, I'm Hamza Amdouni 👋
+### Hi there, I'm Hamza 👋
 
 
 This is my ✨ _special_ ✨ crazy world, where I wake up at night with an idea and put it here, tinker things, break things, and fix other things :grin:
